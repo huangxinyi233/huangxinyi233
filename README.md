@@ -3,7 +3,7 @@
 🎓 PhD Student at University of Tsukuba (Japan)  
 🧭 Research Interests: GIS, Compact Cities, CO₂ Emissions, Urban Sustainability, Transportation Geography  
 
-🚧 More updates coming soon...
+🚧 More updates coming soon....
 
 
 <!---
